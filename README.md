@@ -4,3 +4,4 @@ kompisss
 hehehhehehe
 
 va säger du 
+mofo hobo 
